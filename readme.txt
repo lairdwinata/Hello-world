@@ -8,3 +8,4 @@ Going to Bangkok today!
 Really going this time!
 Hungry!
 I change username to lairdwinata
+Now my name is Johnny Evans
